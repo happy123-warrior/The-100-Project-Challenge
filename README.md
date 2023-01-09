@@ -13,3 +13,15 @@ Each project will be in a sepperate directory that starts with the project numbe
 
 ## Contributing And Feedback
 You are fully welcome to leave feedback on any of the projects and suggest any improvements I can make to them. I'm always open to new suggestions and ideas that can improve my projects. 
+in the photo.
+
+## Contributing And Feedback
+You are fully welcome to leave feedback on any of the projects and suggest any improvements I can make to them. I'm always open to new suggestions and ideas that can improve my projects. 
+in the photo.
+
+## Contributing And Feedback
+You are fully welcome to leave feedback on any of the projects and suggest any improvements I can make to them. I'm always open to new suggestions and ideas that can improve my projects. 
+in the photo.
+
+## Contributing And Feedback
+You are fully welcome to leave feedback on any of the projects and suggest any improvements I can make to them. I'm always open to new suggestions and ideas that can improve my projects. 
